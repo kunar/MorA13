@@ -7,7 +7,7 @@ Wie geht es euch?
 
 Was macht ihr so?
 
-&Uumlber dich...
+Über dich...
 
 Genau
 
